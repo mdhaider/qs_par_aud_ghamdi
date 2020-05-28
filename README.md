@@ -1,0 +1,1 @@
+# qs_para_aud_ghamdi
